@@ -12,6 +12,6 @@
  * 7.35 p.m - 9.30 p.m ;; . in tuiton . ( might be skipping tuiton shh )
 
 
-~ my beautiful name in hiragana .. ないとしふと / かせりん 
+~ my beautiful name in hiragana ..  かせりん 
 
    , aaaaaaaa i love fireoiny so mucchhhh
