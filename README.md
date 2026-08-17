@@ -1,17 +1,19 @@
-# pt activity \\  ☆
+![image]https://www.picmix.com/stamp/rentry-frame-divider-dark-blue-navy-border-lace-2799184
 
-### about me
-* mostly active ,, sometimes offtab .
-* i don't join regis . don't force me .
-* any prns
-* i ♡ yaoi
-
-### statuses
- * 6.00 a.m - 5.50 p.m ;; . in school
- * 6.00 p.m - 7.30 p.m ;; . active
- * 7.35 p.m - 9.30 p.m ;; . in tuiton . ( might be skipping tuiton shh )
+***INTRODUCTION***  . ☆
 
 
-~ my beautiful name in hiragana ..  かせりん 
+` name ,, lovebluh / kath ,, kath is short for katherine .`
 
-   , aaaaaaaa i love fireoiny so mucchhhh
+`  age ,, i prefer not to tell .`
+
+`                     ~ active only on 6.60 p.m until 7.30 p.m .`
+
+                  *likes !! ,, reading books , coins , entertainment , bfdi .*                                                                                   
+
+                                                                                 *dislikes ... ,, hxmophobia , rxcism , problematic stuff ,, uncomfy things*
+
+
+note : iwc ,, not that active on dc .
+
+                                                                   **i don't use discord that much ,, shhhh**
