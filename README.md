@@ -16,4 +16,4 @@
 
 note : iwc ,, not that active on dc .
 
-                                                                   **i don't use discord that much ,, shhhh**
+                                                                   `i don't use github that much ,, shhhh`
