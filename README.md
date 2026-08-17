@@ -1,4 +1,4 @@
-![image]https://www.picmix.com/stamp/rentry-frame-divider-dark-blue-navy-border-lace-2799184
+
 
 ***INTRODUCTION***  . ☆
 
