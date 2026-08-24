@@ -1,19 +1,11 @@
 
 
-***INTRODUCTION***  . ☆
+<h1>hii im coiny . nice to meet u : heart : also i LOVE LOVE firey mwah mwah ehehhe</h1>
 
+<h3>not that active in github or dc</h3>
 
-` name ,, lovebluh / kath ,, kath is short for katherine .`
+<img width="498" height="282" alt="yay-stim" src="https://github.com/user-attachments/assets/ac10510f-cf98-4b65-a8c8-a595c6592ae6" />
 
-`  age ,, i prefer not to tell .`
+<h2>um ok bye im bored</h2>
 
-`                     ~ active only on 6.60 p.m until 7.30 p.m .`
-
-                  *likes !! ,, reading books , coins , entertainment , bfdi .*                                                                                   
-
-                                                                                 *dislikes ... ,, hxmophobia , rxcism , problematic stuff ,, uncomfy things*
-
-
-note : iwc ,, not that active on dc .
-
-                                                                   `i don't use github that much ,, shhhh`
+<img width="442" height="456" alt="coiny-bfdia" src="https://github.com/user-attachments/assets/5b5913b3-2e95-4e66-b053-38ddd44ab678" />
