@@ -29,7 +29,7 @@ free int , c*h , mostly active and firey yumes iwc :33 still sharing though
 
 advanced bio over here ~ !
 
-⿻   𝗪ᥱᥣᥴ᥆𝗺ᥱ 𝗍᥆ name '𝘀 ─ ꒰ *ᑲᥲkᥱ𝗿ᥡ* ꒱ !
+⿻   𝗪ᥱᥣᥴo𝗺ᥱ 𝗍o coiny '𝘀 ─ ꒰ *ᑲᥲkᥱ𝗿ᥡ* ꒱ !
 *.ㅤ🍭ㅤ𓂅 ㅤㅤ ─ㅤㅤ⊹ㅤㅤ♥︎ㅤㅤꔵ
 
 
