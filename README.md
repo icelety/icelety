@@ -6,5 +6,5 @@
 
 <p align="center"> $\color{#ffa500}{text{" i told you i was going to win !! "}}$</p>
 
-<p align="center"> $\color{#ffa500}{text{iwcare ,, fireoiny  fans  INT  .  dni  if  you're  a  meowist  /  spawnist .}}$</p>
+<p align="center"> $\color{#ffa500}{text{iwcare ,,  fireoiny   fans   INT  .  dni  if  you're  a  meowist  /  spawnist .}}$</p>
 
