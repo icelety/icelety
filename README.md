@@ -4,4 +4,7 @@
 
 <p align="center"> $\color{#fec47f}{\text{they / any . }}$</p>
 
+<p align="center"> $\color{#ffa500}{text{" i told you i was going to win !! "}}$</p>
+
+<p align="center"> $\color{#ffa500}{text{iwcare ,, fireoiny fans INT . do NOT int if you're a meowist / spawnist .}}$</p>
 
