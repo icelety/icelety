@@ -14,7 +14,7 @@
 
 <img width="498" height="282" alt="yay-stim" src="https://github.com/user-attachments/assets/ac10510f-cf98-4b65-a8c8-a595c6592ae6" />
 
-<h2>bye ,,,</h2>
+<h2>―𓏲⋆</h2>
 
 lazy agender dude trying to breath air
 
