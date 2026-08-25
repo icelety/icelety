@@ -4,7 +4,8 @@
 
 <p align="center"> $\color{#fec47f}{\text{they / any . }}$</p>
 
-<p align="center"> $\color{#ffa500}{\text{" i told you i was going to win !! "}}$</p>
+<p align="center"> $\color{#ffa500}{\text{" i told you i was SICK . you didn't listen . "}}$</p>
+<p align="center"> $\color{#f08000}{\textit{── .✦}}$</p>
 
 <p align="center"> $\color{#ffa500}{\text{iwcare ,,  fireoiny lover FOREVER .}}$</p>
 
