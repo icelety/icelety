@@ -2,12 +2,8 @@
 
 
 <p align="center">$\color{#FF5733}{\text{coiny . i love firey with my heart}}$</p>
-
 <p align="center"> $\color{#fec47f}{\text{they / any . }}$</p>
-
 <p align="center"> $\color{#ffa500}{\text{" i told you i was SICK . you didn't listen . "}}$</p>
 <p align="center"> $\color{#f08000}{\textit{── .✦}}$</p>
-
 <p align="center"> $\color{#ffa500}{\text{iwcare ,,  fireoiny lover FOREVER .}}$</p>
-
 <p align="center"> $\color{#f08000}{\textit{LISTENING TO ; . . . FEAR GARDEN , KAGAMINE RIN .}}$</p>
