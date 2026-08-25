@@ -8,5 +8,5 @@
 
 <p align="center"> $\color{#ffa500}{text{iwcare ,,  fireoiny lover FOREVER .}}$</p>
 
-<p align="center"> <$\color{#ffa500}{text{<i>LISTENING TO ; . . . FEAR GARDEN , FT . KAGAMINE RIN</i>}}$</p>
+<p align="center"> <i> <$\color{#ffa500}{text{LISTENING TO ; . . . FEAR GARDEN , FT . KAGAMINE RIN}}$</i></p>
 
