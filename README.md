@@ -1,9 +1,9 @@
-<p align="center"> <img width="498" height="282" alt="yay-stim" src="https://github.com/user-attachments/assets/b2f56260-7b30-4fe3-ba2a-0b7cbce2665b" />
+<p align="center"> <img width="220" height="294" alt="bfdia-pin-bfdi" src="https://github.com/user-attachments/assets/0830fdb8-836f-450e-9525-4efd50406323" />
 
 
-<p align="center">$\color{#FF5733}{\text{coiny . i love firey with my heart}}$</p>
-<p align="center"> $\color{#fec47f}{\text{they / any . c * h enc }}$</p>
-<p align="center"> $\color{#ffa500}{\text{" i told you i was SICK . you didn't listen . "}}$</p>
-<p align="center"> $\color{#f08000}{\textit{── .✦}}$</p>
-<p align="center"> $\color{#ffa500}{\text{iwcare ,,  fireoiny lover FOREVER .}}$</p>
-<p align="center"> $\color{#f08000}{\textit{LISTENING TO ; . . . FEAR GARDEN , KAGAMINE RIN .}}$</p>
+<p align="center"> $\color{#fc93a9}{\textit{hai hai ,, um im pin .}}$</p>
+<p align="center"> $\color{#fb6b89}{\textit{c * h enc , iwcare . . .}}$</p>
+<p align="center"> $\color{#fb6b89}{\textit{" i told you i wasn't SICK . you didn't listen to me . "}}$</p>
+<p align="center"> $\color{#fc93a9}{\textit{.꒰ ♡ ꒱ . can i be known as THE pin kin ??}}$</p>
+<p align="center"> $\color{#fdc3cf}{\textit{im so tired . . . follow me bbg <3 .}}$</p>
+
