@@ -7,6 +7,6 @@
 
 <p align="center"> $\color{#8093f1}\text{𝘤𝘹𝘩 𝘧𝘳𝘦𝘦𝘭𝘺 . 𝘪𝘸𝘤 𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 , 𝘸2𝘪}$</p>
 
-<p align="right> <img width="300" height="40" alt="0203-youtubelogo" src="https://github.com/user-attachments/assets/42c20d59-085f-4b78-94c6-d7aa01879c71" />
-  <img width="150" height="20" alt="0079-nonbinary" src="https://github.com/user-attachments/assets/69053e32-ee80-4750-be69-830e49c7dcb0" />
+<p align="right"> <img width="300" height="40" alt="0203-youtubelogo" src="https://github.com/user-attachments/assets/42c20d59-085f-4b78-94c6-d7aa01879c71" />
+ <p align="right"> <img width="150" height="20" alt="0079-nonbinary" src="https://github.com/user-attachments/assets/69053e32-ee80-4750-be69-830e49c7dcb0" />
 
